@@ -1,1 +1,1 @@
-Crazy, innit?
+for the lolz
